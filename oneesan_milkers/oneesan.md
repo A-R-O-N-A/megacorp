@@ -1,5 +1,5 @@
 # Oneesan Milkers
-+ IJN Kashima
++ IJN Kashima (Very Tight)
 + Super Freak (Umay Musume)
 + Vandimion Scarlet
 + Izayoi Sakuya
