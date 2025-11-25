@@ -1,10 +1,11 @@
 # Cunny List
 
 ## Touhou
-+ Flandre Scarlet
-+ Remilia Scarlet
++ Flandre Scarlet (very loose)
++ Remilia Scarlet (very loose)
 
 ## Blue Archive
+_Shupogacake_
 + Nozomi Tachibana
 + Hikari Tachibana
 
