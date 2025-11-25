@@ -10,4 +10,5 @@
 
 ## Expired but exceptional
 + Yuuka Hayase _*100kg UOHHH*_
++ _The_ Herta (Honkai Star Rail)
 
