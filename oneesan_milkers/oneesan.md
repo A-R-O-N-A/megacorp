@@ -1,5 +1,5 @@
 # Oneesan Milkers
-+ Kashima (Kancolle)
-+ Super Creek (Uma Musume)
-+ Scarlet Vandimion
-+ Sakuya Izayoi
++ IJN Kashima
++ Super Freak (Umay Musume)
++ Vandimion Scarlet
++ Izayoi Sakuya

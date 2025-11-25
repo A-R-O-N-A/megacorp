@@ -1,8 +1,9 @@
 # Cunny List
 
-## Touhou
-+ Flandre Scarlet
-+ Remilia Scarlet
+## Touhou Kantutan
++ Scarlet Remilia
++ Scarlet Flandre
++ Izayoi Sakuya
 
 ## Blue Archive
 + Nozomi Tachibana
