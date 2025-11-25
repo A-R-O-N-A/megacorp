@@ -1,6 +1,6 @@
 # Cunny List
 
-## Touhou Kantutan
+## Touhou Project
 + Scarlet Remilia (Very tight)
 + Scarlet Flandre (Very loose)
 + Izayoi Sakuya (Expired but loveable)
