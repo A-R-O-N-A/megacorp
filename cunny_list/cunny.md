@@ -1,12 +1,13 @@
 # Cunny List
 
-## Touhou
-+ Flandre Scarlet (very loose)
-+ Remilia Scarlet (very loose)
+## Touhou Kantutan
++ Scarlet Remilia (Very tight)
++ Scarlet Flandre (Very loose)
++ Izayoi Sakuya (Expired but loveable)
 
 ## Blue Archive
-_Shupogacake_
-+ Nozomi Tachibana
+### Shupogaki 
++ Nozomi Tachibana 
 + Hikari Tachibana
 
 ## Expired but exceptional
