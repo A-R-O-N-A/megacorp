@@ -1,5 +1,5 @@
 # Oneesan Milkers
-+ Kashima (Kancolle)
-+ Super Creek (Uma Musume)
-+ Scarlet Vandimion
-+ Sakuya Izayoi
++ Kashima Kantutan
++ Super Freak nigger
++ Scarlet Vandeemion
++ Time Stopping maid galing sa Taho 
