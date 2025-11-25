@@ -11,6 +11,10 @@
 + Nozomi Tachibana 
 + Hikari Tachibana
 
+### Trinity
++ Hifumi Ajitani
++ Azusa Shirase
+
 ## Expired but exceptional
 + Yuuka Hayase _*100kg UOHHH*_
 + _The_ Herta MOMMY MILKERS UOHHH
