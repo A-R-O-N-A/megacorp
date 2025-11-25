@@ -1,9 +1,9 @@
 # Cunny List
 
 ## Touhou Kantutan
-+ Scarlet Remilia (Very tight)
-+ Scarlet Flandre (Very loose)
-+ Izayoi Sakuya (Expired but loveable)
++ A : Scarlet Remilia (Very tight) 
++ B : Scarlet Flandre (Very loose)
++ C : Izayoi Sakuya (Expired but loveable)
 + Yuyuko (Very tight)
 
 ## Blue Archive
